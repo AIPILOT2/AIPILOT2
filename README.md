@@ -1,0 +1,1 @@
+I am looking for a co-founder who is engaged in startups in the field of medicine. My project is https://24healthgoods.com/. I would be very grateful if you could help me spread the word about my project!
